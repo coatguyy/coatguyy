@@ -30,3 +30,10 @@
 </p>
 
 ‎‎‎‎‎‎‎‎ㅤㅤ‎‎‎‎‎‎‎‎ㅤㅤ‎‎‎‎‎‎‎‎ㅤㅤ‎‎‎‎‎‎‎‎ㅤㅤ‎‎‎‎‎‎‎‎ㅤㅤ‎‎‎‎‎‎‎‎ㅤㅤ‎‎‎‎‎‎‎‎ㅤㅤ‎‎‎‎‎‎‎‎ㅤㅤ‎‎‎‎‎‎‎‎ㅤㅤ‎‎‎‎‎‎‎‎ㅤㅤ‎‎‎‎‎‎‎‎ㅤㅤㅤ‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎ㅤㅤㅤ‎‎‎‎‎‎‎‎ㅤ‎‎‎‎‎‎‎‎ㅤㅤ‎‎‎![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=rigbydotnet)
+<!-- pixels/stamps maybe?-->
+<details>
+  <summary><p align="center">
+ <img src="https://file.garden/ZRfaX7xMiQQHiMQP/graphics/coat%20guy%20text%203.png"/>
+</p></summary>
+  <b>WOW, SO BOLD</b>
+</details>
