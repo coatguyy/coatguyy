@@ -11,7 +11,7 @@
  <img src="https://file.garden/ZRfaX7xMiQQHiMQP/graphics/coat%20guy%20byi.png"/>
 </p>
 <p align="center">
- <img src="https://file.garden/ZRfaX7xMiQQHiMQP/graphics/coat%20guy%20byi.png"/>
+ <img src="https://file.garden/ZRfaX7xMiQQHiMQP/graphics/coat%20guy%20text%202.png"/>
 </p>
 
 <p align="center">
