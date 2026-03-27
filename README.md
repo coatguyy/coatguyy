@@ -1,5 +1,8 @@
 <!-- hello if youre reading this, whatcha lookin here for! -->
 <p align="center">
+ <img src="https://file.garden/ZRfaX7xMiQQHiMQP/graphics/small%20text%20coat%20guy.png"/>
+</p>
+<p align="center">
  <a href="https://www.tumblr.com/askcoatguy"><img src="https://file.garden/ZRfaX7xMiQQHiMQP/graphics/@askcoatguy%20on%20tumblr"/></a>
 </p>
 
