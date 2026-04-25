@@ -4,13 +4,17 @@
 </p>
 
 <p align="center">
- <a href="https://www.tumblr.com/sufle/803651706827210752/saturated-fats-and-gunk?source=share"><img src="https://file.garden/ZRfaX7xMiQQHiMQP/graphics/caotguy%20github%202/coatguygraphic.png"width="800"/></a>
+ <a href="https://www.tumblr.com/sufle/803651706827210752/saturated-fats-and-gunk?source=share"><img src="https://file.garden/ZRfaX7xMiQQHiMQP/graphics/caotguy%20github%202/coatguygraphic111.png"width="800"/></a>
 </p>
 <!-- main stuff below -->
 <p align="center">
- <a href="https://www.tumblr.com/sufle/803651706827210752/saturated-fats-and-gunk?source=share"><img src="https://file.garden/ZRfaX7xMiQQHiMQP/graphics/caotguy%20github%202/divider.png"width="500"/></a>
+  <a href="https://coatguyy.atabook.org"><img src="https://file.garden/ZRfaX7xMiQQHiMQP/graphics/caotguy%20github%202/atabook11.png"width="250"/></a> <a href="https://deathlycold.straw.page"><img src="https://file.garden/ZRfaX7xMiQQHiMQP/graphics/caotguy%20github%202/strapwage.png"width="290"/></a>
 </p>
-  
+
+<p align="center">
+ <img src="https://file.garden/ZRfaX7xMiQQHiMQP/graphics/caotguy%20github%202/divider1.png"width="500"/>
+</p>
+ 
 <!-- surprise -->
 <details>
   <summary></summary>
