@@ -4,7 +4,7 @@
 </p>
 
 <p align="center">
- <a href="https://www.tumblr.com/sufle/803651706827210752/saturated-fats-and-gunk?source=share"><img src="https://file.garden/ZRfaX7xMiQQHiMQP/graphics/caotguy%20github%202/coatguygraphic111.png"width="800"/></a>
+ <a href="https://www.tumblr.com/sufle/803651706827210752/saturated-fats-and-gunk?source=share"><img src="https://file.garden/ZRfaX7xMiQQHiMQP/graphics/caotguy%20github%202/coatguygraphic111.png"width="780"/></a>
 </p>
 <!-- main stuff below -->
 <p align="center">
