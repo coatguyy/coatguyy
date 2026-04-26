@@ -1,5 +1,8 @@
 <!-- hello if youre reading this, whatcha lookin here for! -->
 <p align="center">
+<br>$\color{#202A82}{\textsf{click the images for the links back to the artists}}$
+</p>
+<p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=DotGothic16&pause=1000&color=007B50&center=true&multiline=true&repeat=false&width=586&height=53&lines=I+c-cling+on+to+the+thought+of+warmth;Even+when+I+k-know+it+never+belonged+to+me" alt="Typing SVG" /></a>
 </p>
 
