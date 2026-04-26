@@ -17,7 +17,7 @@ $\color{#21772E}{\textsf{𐂯‎　❄️　𐄈  a๖out ๓e  :　☘️}}$
 $\color{#025B65}{\textsf{genderfluid boygirl}}$ $\color{#025B65}{\textsf{◠✧ 18 yrs old}}$
  <br>
                   <br>$\color{#202A82}{\textsf{꒰ 🩻    𓈒   byเ  / dnเ :}}$ <br>
-   $\color{#351182}{\textsf{darkshippers, racists, homophobes strictly dni.}}$ $\color{#5021A1}{\textsf{I would prefer if you are 15+ to int!}}$ <br>$\color{#7F44BA}{\textsf{c+h is always okay, no need to ask or be shy unless}}$ $\color{#B22FB7}{\textsf{I'm with a friend with dni etc in their name, go right ahead!}}$ $\color{#A12B6D}{\textsf{Please leave me out of any drama as I'm deeply disinterested in any of that type of thing,}}$ <br>$\color{#A42C48}{\textsf{I just want to sit with my friends and chill.}}$ $\color{#903226}{\textsf{thank you for reading. check out my atabook and strawpage}}$ $\color{#A42C48}{\textsf{(strawpage needs a little updating, though.)}}$
+   $\color{#351182}{\textsf{darkshippers, racists, homophobes strictly dni.}}$ $\color{#5021A1}{\textsf{I would prefer if you are 15+ to int!}}$ $\color{#7F44BA}{\textsf{c+h is always okay, no need to ask or be shy unless}}$ $\color{#B22FB7}{\textsf{I'm with a friend with dni etc in their name, go right ahead!}}$ $\color{#A12B6D}{\textsf{Please leave me out of any drama as I'm deeply disinterested in any of that type of thing,}}$ $\color{#A42C48}{\textsf{I just want to sit with my friends and chill.}}$ $\color{#903226}{\textsf{thank you for reading. check out my atabook and strawpage}}$ $\color{#A42C48}{\textsf{(strawpage needs a little updating, though.)}}$
  $\color{#A12B6D}{\textsf{(Ps, No I'm Not a Human fans, please interact!)}}$
 </p>
 
