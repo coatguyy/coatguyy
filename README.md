@@ -8,28 +8,19 @@
 </p>
 <!-- main stuff below -->
 <p align="center">
-  <a href="https://www.tumblr.com/seabunyy"><img src="https://file.garden/ZRfaX7xMiQQHiMQP/graphics/caotguy%20github%202/coatguy%20graphiceva.png"width="250"/></a> 
+<img src="https://file.garden/ZRfaX7xMiQQHiMQP/graphics/caotguy%20github%202/coatguy%20graphiceva.png" width="300" align="left" alt="coat guy">
+<img align="right" src="https://picsum.photos/300/200" alt="image" />
 </p>
-<br>
-<br>
-  <table>
-    <tr>
-      <td>
-        <br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info
-        <br>
-          <br>
-      </td>
-    </tr>
-  </table>
+<p align="right">
+                    𐂯‎　❄️　𐄈  a๖out ๓e  :　☘️
+      <br> roxy, evgeny, holod 𖦹 she/he mainly, any pronouns <br>
+genderfluid boygirl ◠✧ 18 yrs old
+ <br>
+                  <br>꒰ 🩻    𓈒   byเ  / dnเ :
+    darkshippers, racists, homophobes strictly dni. I would prefer if you are 15+ to int! c+h is always okay, no need to ask or be shy! unless I'm with a friend with dni etc in their name, go right ahead! Please leave me out of any drama as I'm deeply disinterested in any of that type of thing, I just want to sit with my friends and chill <br>
+ thank you for reading. check out my atabook and strawpage. (strawpage needs a little updating, though.)
+ (Ps, No I'm Not a Human fans, please interact!)
+</p>
 
 <!-- links etc -->
 <p align="center">
