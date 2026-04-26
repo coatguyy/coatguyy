@@ -8,10 +8,32 @@
 </p>
 <!-- main stuff below -->
 <p align="center">
-  <a href="https://coatguyy.atabook.org"><img src="https://file.garden/ZRfaX7xMiQQHiMQP/graphics/caotguy%20github%202/atabook11.png"width="250"/></a> <a href="https://deathlycold.straw.page"><img src="https://file.garden/ZRfaX7xMiQQHiMQP/graphics/caotguy%20github%202/strapwage.png"width="290"/></a>
+  <a href="https://www.tumblr.com/seabunyy"><img src="https://file.garden/ZRfaX7xMiQQHiMQP/graphics/caotguy%20github%202/coatguy%20graphiceva.png"width="250"/></a> 
 </p>
+<br>
+<br>
+  <table>
+    <tr>
+      <td>
+        <br>
+      info info info info info info info info<br>
+      info info info info info info info info<br>
+      info info info info info info info info<br>
+      info info info info info info info info<br>
+      info info info info info info info info<br>
+      info info info info info info info info<br>
+      info info info info info info info info<br>
+      info info info info info info info info<br>
+      info info info info info info info info
+        <br>
+          <br>
+      </td>
+    </tr>
+  </table>
 
+<!-- links etc -->
 <p align="center">
+  <a href="https://coatguyy.atabook.org"><img src="https://file.garden/ZRfaX7xMiQQHiMQP/graphics/caotguy%20github%202/atabook11.png"width="250"/></a> <a href="https://deathlycold.straw.page"><img src="https://file.garden/ZRfaX7xMiQQHiMQP/graphics/caotguy%20github%202/strapwage.png"width="290"/></a>
  <img src="https://file.garden/ZRfaX7xMiQQHiMQP/graphics/caotguy%20github%202/divider1.png"width="500"/>
 </p>
  
