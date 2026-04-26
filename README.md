@@ -12,9 +12,9 @@
 <img align="right" src="https://picsum.photos/300/200" alt="image" />
 </p>
 <p align="right">
-                    𐂯‎　❄️　𐄈  a๖out ๓e  :　☘️
-      <br> roxy, evgeny, holod 𖦹 she/he mainly, any pronouns <br>
-genderfluid boygirl ◠✧ 18 yrs old
+$\color{#BA4466}{\textsf{𐂯‎　❄️　𐄈  a๖out ๓e  :　☘️}}$
+      <br> $\color{#7785ED}{\textsf{roxy, evgeny, holod}}$ $\color{#B46FE3}{\textsf{𖦹}}$ $\color{#0F6894}{\textsf{she/he mainly, any pronouns}}$ <br>
+$\color{#2718C2}{\textsf{genderfluid boygirl}}$ $\color{#B46FE3}{\textsf{◠✧}}$ $\color{#7120A7}{\textsf{18 yrs old}}$
  <br>
                   <br>꒰ 🩻    𓈒   byเ  / dnเ :
     darkshippers, racists, homophobes strictly dni. I would prefer if you are 15+ to int! c+h is always okay, no need to ask or be shy! unless I'm with a friend with dni etc in their name, go right ahead! Please leave me out of any drama as I'm deeply disinterested in any of that type of thing, I just want to sit with my friends and chill <br>
